@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br><br>    🌱 I’m currently learning java<br><br>    📫 How to reach me shindepratik582004@gmail.com<br>
+<br><br>    Hi, I'm Pratik! 👋<br><br>    🌱 I’m currently learning java<br><br>    📫 How to reach me shindepratik582004@gmail.com<br>
 
 
 ## 🌐 Socials:
